@@ -1,1 +1,0 @@
-# standaqgames.github.io
